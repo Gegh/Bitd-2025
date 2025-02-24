@@ -1,0 +1,3 @@
+- **Ziel:** Ein reicher, aber mysteriöser Geschäftsmann ist in Doskvol aufgetaucht und kauft plötzlich große Mengen an **seltenen Artefakten** – doch es gibt keine Beweise, dass er überhaupt existiert. Die _Ungebetenen Gäste_ sollen seine Identität aufdecken oder, noch besser, seine Rolle übernehmen.
+- **Herausforderungen:** Den Mann aufspüren, bevor er verschwindet; sich Zugang zu seiner Villa verschaffen, ohne Alarm auszulösen; seine Kontakte täuschen und die Geschäfte in seinem Namen weiterführen.
+- **Twist:** Der Mann ist kein Mensch – sondern **ein lebender Schatten**, der nur durch ein altes Ritual gebunden wurde. Wer ihn enttarnt, wird selbst sein nächstes Opfer.

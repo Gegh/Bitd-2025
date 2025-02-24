@@ -1,0 +1,3 @@
+- **Ziel:** Ein exzentrischer Adliger hat eine seltene **Geister-Essenz** erworben, die ihn angeblich unsterblich macht. Die Gang will dieses Artefakt sabotieren oder stehlen, um entweder selbst Macht zu erlangen oder den Wahnsinn dieses Mannes zu beenden.
+- **Herausforderungen:** Durch eine mit Fallen gesicherte Villa gelangen; mit einem **besessenen Diener** fertigwerden; herausfinden, was die Geisteressenz wirklich bewirkt.
+- **Twist:** Die Essenz ist keine gewöhnliche Substanz – sie ist der **gebundene Geist eines ehemaligen Gangmitglieds**, das vielleicht noch Rache will.

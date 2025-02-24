@@ -1,0 +1,3 @@
+- **Ziel:** Eine Karte, die angeblich **selbst neue Straßen zeichnet**, ist in die Hände eines zwielichtigen Kartographen gefallen. Er behauptet, dass sie geheime Orte offenbart, die in Doskvol nie existierten – oder noch existieren werden. Die Gang will die Karte stehlen, bevor sie in die falschen Hände gerät.
+- **Herausforderungen:** Die Karte liegt in einem schwer bewachten Archiv, das ständig seine Struktur verändert; das Dokument selbst wehrt sich gegen Diebstahl – wer es berührt, vergisst, **wohin er geht**; ein anderer Interessent ist bereits da und will sie für sich beanspruchen.
+- **Twist:** Die Karte zeigt nicht nur Straßen – sondern auch **die Namen derer, die bald sterben werden**. Und einer der Charaktere steht bereits darauf.

@@ -1,0 +1,3 @@
+- **Ziel:** Ein berühmter Puppenspieler veranstaltet eine exklusive **Maskenvorstellung**, bei der reiche Zuschauer eine spezielle Maske erhalten, die angeblich „die wahre Natur ihrer Seele offenbart“. Doch ein Informant behauptet, dass die Masken verzaubert sind und ihre Träger manipulieren. Die Gang muss den Plan durchkreuzen.
+- **Herausforderungen:** Eine Maske stehlen und herausfinden, wie sie funktioniert; sich unter die Gäste mischen, ohne selbst zum Opfer zu werden; den Puppenspieler entlarven, bevor er seine Kontrolle auf alle Anwesenden ausweitet.
+- **Twist:** Die Masken können nicht einfach abgenommen werden – sie wachsen mit der Haut zusammen. Wer zu lange unter ihrem Einfluss steht, **verliert seine Identität**.
